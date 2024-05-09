@@ -10,7 +10,7 @@ Meu nome é Andrew Rafael
 
   00001106623046sp@aluno.educacao.sp.gov.br
 
-  @jullio.cesar244@gmail.com
+  00001106623046sp@al.educacao.sp.gov.br
 
   ![-](https://media.tenor.com/mCiM7CmGGI4AAAAM/naruto.gif)
   
